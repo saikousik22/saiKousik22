@@ -6,5 +6,4 @@
 🤝 Open to collaborating on **AI projects**, **web applications**, and **hackathons**  
 📫 Reach me at: **psaikousik@gmail.com**  
 🔗 LinkedIn: [padarthi-sai-kousik](https://www.linkedin.com/in/padarthi-sai-kousik)  
-😄 Pronouns: *He/Him*  
 ⚡ *Fun fact:* I enjoy turning ideas into real products—especially when solving real-world problems!
